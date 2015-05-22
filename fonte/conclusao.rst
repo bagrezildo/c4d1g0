@@ -7,3 +7,4 @@ Donec cursus gravida faucibus. Nam placerat mauris ac orci tempor, vitae mattis 
 
 .. index:: vestibulum, efficitur
 
+Podemos então concluir que a velocidade em que as garotas ovulam é diretamente proporcional à velocidade com que as pombas vermelhas de praga metralham ohio com suas fezes durante a migração para o sul, sim, extremo sul.
